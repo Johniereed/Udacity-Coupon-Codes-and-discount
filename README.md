@@ -1,4 +1,4 @@
-[75% OFF] Udacity Coupon Codes & Discounts 2024
+# [75% OFF] Udacity Coupon Codes & Discounts 2024
 
 We have you covered if you're trying to find the greatest and most practical Udacity coupons.
 
